@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **aakashsh1201@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1aWYnsWJUEYX4Iz_v9Me8bZIdeEy-eODb/view](https://drive.google.com/file/d/1aWYnsWJUEYX4Iz_v9Me8bZIdeEy-eODb/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
